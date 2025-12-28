@@ -1,10 +1,3 @@
-🔥 **Mission accepted, Shuvo! Let’s begin Week 1 like a PRO** ☁️💪
-You’ve just shared the **Introduction to Week 1**, and this is a *very important* part because it sets your **mental foundation** for everything that follows.
-
-I’ll break this down **slowly**, **clearly**, and **intuitively** — no pressure, no overload 😄
-
----
-
 # 🌍 Week 1: What Are We REALLY Doing?
 
 ### 🎯 Goal of Week 1
